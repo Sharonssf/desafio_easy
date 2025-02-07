@@ -25,6 +25,6 @@ Atualmente, busco oportunidades para crescer profissionalmente e contribuir com 
 
 📫 <strong>Contato</strong>
 
-LinkedIn
-GitHub
+LinkedIn: https://www.linkedin.com/in/samuel-sharon-fonseca-12983523b/
+Telefone: 61993288845
 ✉️ E-mail: samuel.sharon027@gmail.com
